@@ -9,4 +9,4 @@
 Understanding people is the beginning of helping them well.
 
 联系我 / Contact
-📧 liuyunjie.zxuz@bytedance.com
+📧 lyj7129@163.com
